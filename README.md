@@ -8,6 +8,7 @@ Meu nome é Nicoly Ronqui
 • Utilizo esse espaço para organização e compartilhamento dos meus projetos 
 
 Você pode entrar em contato comigo:
+
 📫 00001118286169sp@al.educacao.sp.gov.br
 
 📱 @nyronqui
